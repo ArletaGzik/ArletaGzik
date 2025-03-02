@@ -6,4 +6,4 @@
 🌱 Learning manual software testing.
 🔭 I would like to learn automatic testing.
 🤔 Looking for a place to develop my skills.
-🎂 I like baking artistic cakes https://drive.google.com/drive/folders/1gzwrMTCu8jeJmhBqu_vUhUXw8QxO5A7E?usp=share_link
+🎂 I like baking artistic cakes [link do zdjec](http://bit.ly/4ioGjh8)
