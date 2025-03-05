@@ -1,5 +1,5 @@
 
-👋 Hi there! I’m a Junior QA Engineer passionate about delivering high-quality software and hunting down even the smallest bugs! 🐞🔍
+👋 Hi there! I’m a Junior QA Engineer passionate about delivering high-quality software and hunting down even the smallest bugs! 🪲 🐞 🔎
 
 🌍 Based in Warsaw, Poland  
 💻 Learning manual software testing  
