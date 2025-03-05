@@ -5,6 +5,6 @@
 🌎 Live in Warsaw, Poland.
 🌱 Learning manual software testing.
 🔭 I would like to learn automatic testing.
-🤔 Looking for a place to develop my skills, so if you are looking for a nem team member contact me on [Linkedln] (https://linkedin.com/in/arleta-gzik-769024317/)
+🤔 Looking for a place to develop my skills, so if you are looking for a nem team member contact me on [Linkedln](https://linkedin.com/in/arleta-gzik-769024317/)
 🎂 I like baking artistic cakes) 📸 [Zobacz galerię zdjęć](https://drive.google.com/drive/folders/1gzwrMTCu8jeJmhBqu_vUhUXw8QxO5A7E?usp=share_link)
 
